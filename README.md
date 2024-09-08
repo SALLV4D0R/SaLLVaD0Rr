@@ -1,6 +1,6 @@
 # 🐺 SALLVAD0R 
 
-**`SHACKERS SOCIETY #(Hackers,Programmers...) $\("THE LOOPHOLE UNDEFINED! ")\`**
+**`#("SHACKERS SOCIETY..."); $\("THE LOOPHOLE UNDEFINED! ")\`**
 
 sallvad0r head of a multi-talented band and family "shackers society". I have experience in the field of informatics, especially cyber security. An athlete, kickboxer and gamer & more .... I like to learn and do everything in life.
 
