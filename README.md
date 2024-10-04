@@ -1,6 +1,6 @@
 # 🐺 SALLV4D0R 
 
-**`#("==SHACKERS SOCIETY...=="); $\("THE LOOPHOLE UNDEFINED! ")\`**
+**`#("SHACKERS SOCIETY"); $\("THE LOOPHOLE UNDEFINED! ")\`**
 
 SALLV4D0R
 > sallvad0r head of a multi-talented band **shackers society**. cyber security. An athlete, kickboxer and gamer & more .... I understand what its like to be *different* !.
