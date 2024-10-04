@@ -3,7 +3,7 @@
 **`#("==SHACKERS SOCIETY...=="); $\("THE LOOPHOLE UNDEFINED! ")\`**
 
 SALLV4D0R
-> sallvad0r head of a multi-talented band and family "shackers society". I have experience in the field of informatics, especially cyber security. An athlete, kickboxer and gamer & more .... I like to learn and do everything in life.
-I dont like to introduce and talk about myself - about the work i have done .
+> sallvad0r head of a multi-talented band **shackers society**. cyber security. An athlete, kickboxer and gamer & more .... I understand what its like to be *different* !.
+I dont like to introduce and talk about myself.
 
-"THERE S NO ~~LIGHT~~ FOR THOSE WHO DO NOT KNOW ~~DARKNESS~~"
+**"THERE S NO ~~LIGHT~~ FOR THOSE WHO DO NOT KNOW ~~DARKNESS~~"**
